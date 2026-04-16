@@ -1,0 +1,2 @@
+# latihankamis
+latihan harini
